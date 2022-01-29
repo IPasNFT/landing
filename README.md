@@ -1,1 +1,1 @@
-# Official IFasNFT.com website
+# Official IPasNFT.com website
